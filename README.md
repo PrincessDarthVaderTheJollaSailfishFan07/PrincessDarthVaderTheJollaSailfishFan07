@@ -5,7 +5,7 @@
 - 📫 How to reach me 1,000 subscribers on YouTube?
 - Likes: Jolla Sailfish OS and Jolla Sailfish x86
 - Dislikes: Jolla Sailfish OS Hatebase
-- Age: 14
+- Age: 15
 - Birthdate: March 06, 2007
 <!---
 PrincessDarthVaderTheJollaSailfishFan07/PrincessDarthVaderTheJollaSailfishFan07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
